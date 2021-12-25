@@ -1,1 +1,0 @@
-# otameshi.sakki4esxsa
